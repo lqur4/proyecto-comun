@@ -11,3 +11,8 @@ hola tonotos -cam
 Im a epic NPC maaaaaaAAAAAAAAAn!!!!!!!!!!!!! (Mercedes owo)
 holaaa (isabel)
 holaa (Estefi)
+
+
+
+
+patas (yo)
