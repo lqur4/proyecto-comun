@@ -12,7 +12,4 @@ Im a epic NPC maaaaaaAAAAAAAAAn!!!!!!!!!!!!! (Mercedes owo)
 holaaa (isabel)
 holaa (Estefi)
 
-
-
-
 oa (lau)
